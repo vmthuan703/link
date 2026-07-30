@@ -1,2 +1,1 @@
-[https://drive.google.com/drive/mobile/folders/1gSg34KOcbMm_kFcVZY_DqhfizWimLK7M
-](https://taca.org.vn/)
+https://zoom.us/j/4102206789?pwd=yKem240TA4fteQ4MRPoYEsvgb28vCe.1&
