@@ -1,7 +1,1 @@
-https://zoom.us/j/4102206789?pwd=yKem240TA4fteQ4MRPoYEsvgb28vCe.1&
-
-
-
-
-
-https://taca.org.vn/
+https://docs.google.com/spreadsheets/d/1daqQvS_pR4UtGvYsFi1gj2SwAtRy3w8VItns3ZNhrfE/edit?usp=sharing
